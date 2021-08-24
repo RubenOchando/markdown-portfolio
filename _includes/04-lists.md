@@ -1,6 +1,6 @@
 <h2> Listsssssssss
   
-  * 	:+1:
+  * 	👍
 * :smile:
   * 🇦🇶
   * 🧄
