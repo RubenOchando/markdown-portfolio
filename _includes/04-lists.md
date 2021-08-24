@@ -1,1 +1,8 @@
-Replace this with a list of your favorite things.
+<h2> Listsssssssss
+  
+  * 	:+1:
+* :smile:
+  * 🇦🇶
+  * 🧄
+  1. 🧛
+  1. 🥭
